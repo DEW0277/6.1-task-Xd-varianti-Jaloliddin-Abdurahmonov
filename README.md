@@ -1,0 +1,1 @@
+# 6.1-task-Xd-varianti-Jaloliddin-Abdurahmonov
